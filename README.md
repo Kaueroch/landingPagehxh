@@ -1,2 +1,2 @@
 # landingPagehxh
-Uma landingPage de coisas que eu gosto no geral
+Uma landingPage de um anime que eu gosto!
